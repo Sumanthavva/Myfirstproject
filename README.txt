@@ -1,1 +1,1 @@
-Go fuck yourself
+My first repo
